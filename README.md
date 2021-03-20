@@ -27,6 +27,6 @@ Part 1:
 ![](https://i.imgur.com/978PrDM.gif)
 
 Part2:
-![](https://i.imgur.com/71BBrkY.gif)
+https://i.imgur.com/71BBrkY.gif
 
 
